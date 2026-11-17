@@ -1,2 +1,2 @@
 # ENCICLOPEDIA-WEB-ANIMLIA
-Trabajo en equipo grupo #5.
+Trabajo en equipo grupo Perplexity.
